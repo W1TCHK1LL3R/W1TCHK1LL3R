@@ -1,7 +1,7 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 VOX/VEX. (preferred nickname: Vox.)
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-Extremely Heavy vox kinnie, doubles dniuf pls. 
+Agatha/vox kinnie, doubles dniuf pls. 
 TRUST US!
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Read strawpage/pronouns page for more info on dni and general info.
@@ -10,7 +10,7 @@ Read strawpage/pronouns page for more info on dni and general info.
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔. 
 Fav animal: Sharks/Tigers. 
-Bisexual and Bigender, strictly He/She or Vox.
+Bisexual and Bigender, strictly He/She.
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
 Single.
 SIGN ATA I NEED MESSAGES. (hate messages will be deleted)
