@@ -2,7 +2,7 @@
 VOX/VEX. (preferred nickname: Vox.)
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Agatha/vox kinnie, doubles dniuf pls. 
-TRUST US!
+
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Read strawpage/pronouns page for more info on dni and general info.
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
