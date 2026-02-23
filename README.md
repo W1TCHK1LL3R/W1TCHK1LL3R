@@ -1,7 +1,7 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 VOX/VEX. (preferred nickname: Vox.)
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-Extremely Heavy vox kinnie, doubles iwec pls. 
+Extremely Heavy vox kinnie, doubles dniuf pls. 
 TRUST US!
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Read strawpage/pronouns page for more info on dni and general info.
