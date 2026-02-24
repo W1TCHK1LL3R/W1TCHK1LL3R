@@ -16,7 +16,7 @@ Single.
 SIGN ATA I NEED MESSAGES. (hate messages will be deleted)
 
 
-INT: Dinosaur fans, Greek myhtology, Staticmoth, Emilute, Agatha All Along Fans, Vees Kins (Only The Non-weird val ones can int! + velvette.) 
+INT: Dinosaur fans, Greek mythology, Staticmoth, Emilute, Agatha All Along Fans, Vees Kins (Only The Non-weird val ones can int! + velvette.) 
 IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that arent staticmoth (staticbelle for example.)
 DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship/Proship.
 
