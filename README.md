@@ -1,5 +1,5 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-VOX/VEX. (preferred nickname: Vox.)
+VOX/VEX. (preferred nickname: Vex.)
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Agatha/vox kinnie, doubles dniuf pls. 
 
