@@ -17,8 +17,8 @@ SIGN ATA I NEED MESSAGES. (hate messages will be deleted)
 
 
 INT: Dinosaur fans, Greek mythology, Staticmoth, Emilute, Agatha All Along Fans, Poppy Playtime fans, Vees Kins (Only The Non-weird val ones can int! + velvette.) 
-IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that arent staticmoth (staticbelle for example.)
-DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship/Proship.
+IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that arent staticmoth (staticbelle for example.) Forsaken Fandom, Dandys world fandom.
+DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship/Proship, Spawnism. 
 
 "Wowww.. SUPERR scary! I see why they give you such a big hat-!" (for @whiskdrinker)
 
