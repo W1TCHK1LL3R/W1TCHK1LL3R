@@ -22,6 +22,8 @@ DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic
 
 "Wowww.. SUPERR scary! I see why they give you such a big hat-!" (for @whiskdrinker)
 
+Be mindful i DO ship mirrorvision (glisten x vee) and shellvision (shelly x vee), if you dont like these ships, simply dont follow me or just block me. Hate is unneccessary in my links.
+
 ![image-alt](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/8b70916fdb07f79e0bdc8776ef566cfde33489ae/IMG_0913.gif)
 
 
