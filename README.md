@@ -1,5 +1,5 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-VOX/VEX. (preferred nickname: Vex.)
+VEE/VEX. (preferred nickname: Kin Names.)
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Agatha/vox/catnap/vee kinnie, doubles dniuf pls. (Kin shifts can also happen!!)
 
