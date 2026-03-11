@@ -4,7 +4,7 @@ VEE/VEX. (preferred nickname: Kin Names.)
 Agatha/vox/catnap/vee kinnie, doubles dniuf pls. (Kin shifts can also happen!!)
 
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-Read strawpage/pronouns page for more info on dni and general info.
+Read strawpage/carrd for more info on dni and general info.
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
  Zodiac is Virgo, Mbti: ENTJ-T.
 
