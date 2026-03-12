@@ -1,7 +1,7 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-VEE/VEX. (preferred nickname: Kin Names.)
+VEX. (preferred nickname: Kin Names.)
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-Agatha/vox/catnap/vee kinnie, doubles dniuf pls. (Kin shifts can also happen!!)
+Agatha/vox/catnap/vee/pawbert kinnie, doubles dniuf pls. (Kin shifts can also happen!!)
 
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Read strawpage/carrd for more info on dni and general info.
@@ -22,14 +22,14 @@ DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic
 
 "Wowww.. SUPERR scary! I see why they give you such a big hat-!" (for @whiskdrinker)
 
-Be mindful i DO ship mirrorvision (glisten x vee) and shellvision (shelly x vee), if you dont like these ships, simply dont follow me or just block me. Hate is unneccessary in my links.
+Big fan of zootopia!! Fans int please ^_^!!
 
-![image-alt](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/8b70916fdb07f79e0bdc8776ef566cfde33489ae/IMG_0913.gif)
+
 
 
 ![](https://komarev.com/ghpvc/?username=Number1VoxKinEVER&label=Contestants)
 
-![image-alt](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/7fc3c8afa509cb74affbc070864803c2fb076314/IMG_0918.gif)
+
 
  ![](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/bffc50bc3f18e35e2e2d08f4145ac96d77990b90/IMG_0920.gif)
  ![](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/feebdbabb625eb788501db30e867290bd05220c8/IMG_0921.gif)
