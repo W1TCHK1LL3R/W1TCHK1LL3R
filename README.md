@@ -24,10 +24,10 @@ DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic
 
 Big fan of zootopia!! Fans int please ^_^!!
 
+![image-alt](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/28b22776b96d2082acead85167a391cb7d4a358f/IMG_0992.gif)
 
 
-
-![](https://komarev.com/ghpvc/?username=Number1VoxKinEVER&label=Contestants)
+![](https://komarev.com/ghpvc/?username=Number1VoxKinEVER&label=Friends?!)
 
 
 
