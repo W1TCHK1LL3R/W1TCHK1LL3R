@@ -1,7 +1,7 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 VEX. (preferred nickname: Kin Names.)
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-Agatha/vox/catnap/vee/pawbert kinnie, doubles dniuf pls. (Kin shifts can also happen!!)
+Agatha/catnap/vee/pawbert kinnie, doubles dniuf pls. (Kin shifts can also happen!!)
 
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Read strawpage/carrd for more info on dni and general info.
