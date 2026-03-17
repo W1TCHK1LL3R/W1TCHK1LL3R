@@ -1,5 +1,5 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-VEX. (preferred nickname: Kin Names.)
+VEX. (preferred nickname: Vex.)
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Agatha/catnap/vee/pawbert kinnie, doubles dniuf pls. (Kin shifts can also happen!!)
 
