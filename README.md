@@ -1,7 +1,7 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 VEX. (Heavy kin of a evil lynx guy idk.. IM NOT A FURRY.)
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-Agatha/catnap/vee/pawbert kinnie, doubles dniuf pls. (Kin shifts can also happen!!)
+Agatha/catnap/vee/pawbert/folly kinnie, doubles dniuf pls. (Kin shifts can also happen!!)
 
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Read strawpage/carrd for more info on dni and general info.
