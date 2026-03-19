@@ -29,6 +29,5 @@ Big fan of zootopia!! Fans int please ^_^!!
 
 ![](https://komarev.com/ghpvc/?username=Number1VoxKinEVER&label=Views!)
 
-![](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/77241b82f9d01e5e350d3eef4ae2fea0c9002f1a/IMG_1020.png)
 
- 
+![](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/7eceb01ed1fa4cc582928fb6ad54dfb50a5b458d/IMG_1023.png)
