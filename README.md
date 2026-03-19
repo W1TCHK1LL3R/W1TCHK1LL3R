@@ -1,5 +1,5 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-VEX. (Heavy kin of a evil lynx guy idk.. IM NOT A FURRY.)
+VEX. (Comf Kin/Fictkin of evil red parasite.)
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Agatha/catnap/vee/pawbert/folly kinnie, doubles dniuf pls. (Kin shifts can also happen!!)
 
