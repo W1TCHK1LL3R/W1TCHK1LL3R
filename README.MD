@@ -28,7 +28,6 @@ IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that are
 
 DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship, Spawnism, Toxic christians/Toxic atheists, Any religion forcers.
 
-"You don't deserve your dads crown!"
 
 
 
