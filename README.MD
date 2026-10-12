@@ -30,9 +30,9 @@ DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic
 
 
 
-![img alt](https://files.catbox.moe/5zpb7m.jpg)
+![img alt](https://files.catbox.moe/5zpb7m.jpg) width="400">
 <p align="center">
-<img src="https://files.catbox.moe/5zpb7m.jpg" width="400">
+
 
 nominations: ponytown's Regina Mills by: [@Ponytowns-rewards](https://github.com)
 
