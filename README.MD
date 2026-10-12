@@ -29,7 +29,7 @@ IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that are
 DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship, Spawnism, Toxic christians/Toxic atheists, Any religion forcers, Sexists, Racists, Ice and Trump supporters, Charlie kirk supporters, Flat-earthers.
 
 
-![img alt](https://files.catbox.moe/rbpodf.jpg)
+<img src="https://files.catbox.moe/rbpodf.jpg" width="300">
 <p align="center">
  
 
