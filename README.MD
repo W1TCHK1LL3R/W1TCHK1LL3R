@@ -12,7 +12,8 @@ Read strawpage/carrd.
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔. 
 
 Fav animal: Sharks/Tigers. 
-Lesbian, Aroace, Bigender. strictly He/She. (It will also be a pronoun, depending on if i use She or He, for example, "He/It" when my account is a male kin.)
+
+Lesbian, Aroace, Bigender. strictly He/She. ("It" will also be a pronoun, depending on if i use She or He, for example, "He/It" when my account is a male kin.)
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
 
