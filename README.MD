@@ -1,6 +1,6 @@
 
-VEX. (Fictionkin and Otherkin.)
-Atheist.
+VEX. (Fictionkin and Otherkin, Atheist.)
+
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
 Read strawpage/carrd.
