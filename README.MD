@@ -19,7 +19,7 @@ Lesbian, Aroace, Bigender. strictly He/She. ("It" will also be a pronoun, depend
 
 Single.
 
-SIGN ATA I NEED MESSAGES. (hate messages will be deleted)
+Sign my Strawpage!! Nothing weird though.
 
 
 INT: Dinosaur nerds, Staticmoth, Emilute, Agatha All Along Fans, Poppy Playtime fans, Vees (hazbin hotel) Kins (Only The Non-weird val ones can int! + velvette.), Once Upon A Time fans.
