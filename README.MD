@@ -26,7 +26,7 @@ INT: Dinosaur nerds, Staticmoth, Emilute, Agatha All Along Fans, Poppy Playtime 
 
 IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that arent staticmoth (staticbelle for example.) Forsaken Fandom.
 
-DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship, Spawnism, Toxic christians/Toxic atheists, Any religion forcers.
+DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship, Spawnism, Toxic christians/Toxic atheists, Any religion forcers, Sexists, Racists, Ice and Trump supporters, Charlie kirk supporters, Flat-earthers.
 
 
 
