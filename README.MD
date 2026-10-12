@@ -29,10 +29,9 @@ IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that are
 DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship, Spawnism, Toxic christians/Toxic atheists, Any religion forcers, Sexists, Racists, Ice and Trump supporters, Charlie kirk supporters, Flat-earthers.
 
 
-
-
+![img alt](https://files.catbox.moe/5zpb7m.jpg)
 <p align="center">
-  <img src="https:/files.catbox.moe/5zpb7m.jpg" width="400">
+ 
 
 nominations: ponytown's Regina Mills by: [@Ponytowns-rewards](https://github.com)
 
