@@ -30,7 +30,7 @@ DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic
 
 
 
-![]https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/2ce80af591344fac6e578da85a067862552d9658/IMG_0842.png
+![img alt](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/2ce80af591344fac6e578da85a067862552d9658/IMG_0842.png)
 
 
 
