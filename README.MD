@@ -22,7 +22,7 @@ Single.
 SIGN ATA I NEED MESSAGES. (hate messages will be deleted)
 
 
-INT: Dinosaur fans, Greek mythology, Staticmoth, Emilute, Agatha All Along Fans, Poppy Playtime fans, Vees (hazbin hotel) Kins (Only The Non-weird val ones can int! + velvette.), Once Upon A Time fans.
+INT: Dinosaur nerds, Staticmoth, Emilute, Agatha All Along Fans, Poppy Playtime fans, Vees (hazbin hotel) Kins (Only The Non-weird val ones can int! + velvette.), Once Upon A Time fans.
 
 IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that arent staticmoth (staticbelle for example.) Forsaken Fandom.
 
