@@ -15,7 +15,7 @@ Lesbian, Aroace, Bigender. strictly He/She. ("It" will also be a pronoun, depend
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
 
-Fcitkin doubles DNI. If you're a friend, IWC.
+Fictkin doubles DNI. If you're a friend, IWC.
 
 Sign my Strawpage!! Nothing weird though.
 
