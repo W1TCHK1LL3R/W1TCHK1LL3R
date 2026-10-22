@@ -17,7 +17,7 @@ Lesbian, Aroace, Bigender. strictly He/She. ("It" will also be a pronoun, depend
 
 Fictkin doubles DNI. If you're a friend, IWC.
 
-Sign my Strawpage!! Nothing weird though.
+Sign my Strawpage & Ata!! Nothing weird though.
 
 
 INT: Dinosaur nerds, Staticmoth, Emilute, Vivziepop slanderers, Non-weird hazbin fans, other Vees Kins (Only The Non-weird val ones can int! + velvette.), Once Upon A Time fans.
