@@ -28,8 +28,7 @@ DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
 
-Fictkins: Vox + pilot and past (hzh), Regina Mills (OUAT), Tenna (Deltarune), Agatha Harkness (MCU/AAA), Caine (TADC), Gummigoo (TADC), Shadow The Hedgehog (STH)
-
+Fictkins: Vox + pilot and past (hzh), Regina Mills (OUAT).
 <img src="https://files.catbox.moe/5scpfd.jpg" width="900"> 
 <p align="center">
 
