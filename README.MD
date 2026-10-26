@@ -32,6 +32,8 @@ Fictkins: Vox + pilot and past (hzh), Regina Mills (OUAT).
 
 Non-sharing yume: Emma Swan. (OUAT)
 
+Swanqueen and Staticmoth are my otps <3
+
 <img src="https://files.catbox.moe/5scpfd.jpg" width="900"> 
 <p align="center">
 
