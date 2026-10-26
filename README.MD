@@ -1,5 +1,5 @@
 
-VEX. (Fictionkin and Otherkin, Atheistic Satanism.)
+VEX 𖤐. (Fictionkin and Otherkin, Theistic Satanism. I do NOT partake in rituals or sacrifice.)
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
