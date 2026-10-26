@@ -1,5 +1,5 @@
 
-VEX. (Fictionkin and Otherkin, Atheist.)
+VEX. (Fictionkin and Otherkin, Atheistic Satanism.)
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
@@ -24,7 +24,7 @@ INT: Dinosaur nerds, Staticmoth, Emilute, Vivziepop slanderers, Non-weird hazbin
 
 IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that arent staticmoth (staticbelle for example.)
 
-DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship, Spawnism, Toxic christians/Toxic atheists, Any religion forcers, Sexists, Racists, Ice and Trump supporters, Charlie kirk supporters, Flat-earthers, Highly-sensitive people. (or people who cant take jokes.), Basic criteria. (Dni if you find kys jokes funny.)
+DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship, Spawnism, Toxic christians/Toxic atheists, Any religion forcers, Sexists, Racists, Ice and Trump supporters, Charlie kirk supporters, Flat-earthers, Highly-sensitive people. (or people who cant take jokes.), Basic criteria. (Dni if you find kys jokes funny.), People who dont support satanism/spread misinformation about it.
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
 
