@@ -38,7 +38,7 @@ Swanqueen and Staticmoth are my otps <3
 <p align="center">
 
 
-nominations: ponytown's Regina Mills by: [@Ponytowns-rewards](https://github.com/Ponytowns-rewards)
+nominations: ponytown's Regina Mills by: [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) [@daggerstruckimage](https://github.com/daggerstruckimage)
 
 
 
