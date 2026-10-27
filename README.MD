@@ -20,7 +20,7 @@ Fictkin doubles DNI. If you're a friend, IWC.
 Sign my Strawpage & Ata!! Nothing weird though.
 
 
-INT: Dinosaur nerds, Staticmoth, Emilute, Vivziepop slanderers, Non-weird hazbin fans, other Vees Kins (Only The Non-weird val ones can int! + velvette.), Once Upon A Time fans.
+INT: Dinosaur nerds, Staticmoth, Emilute, Vivziepop slanderers, Non-weird hazbin fans, other Vees Kins (Only The Non-weird val ones can int! + velvette.), People who don't glaze the characters.
 
 IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that arent staticmoth (staticbelle for example.)
 
