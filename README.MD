@@ -28,7 +28,7 @@ DNI: People i CLEARLY dont like. (Phil-ish, Kai, Mitchell, Kade, Xena.), Radiost
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
 
-Fictkins: Vox + pilot and past (HZH), Regina Mills (OUAT), Venom (MCU.)
+Fictkins: Vox + pilot and past (HZH), Regina Mills (OUAT), Venom (MCU), Wolfman (NBC).
 
 Non-sharing yume: Emma Swan. (OUAT)
 
