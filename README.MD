@@ -34,6 +34,8 @@ Non-sharing yume: Emma Swan. (OUAT)
 
 Swanqueen and Staticmoth are my otps <3
 
+.𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
+
 nominations: ponytown's Regina Mills by: [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) [@daggerstruckmage](https://github.com/daggerstruckmage)
 
 
