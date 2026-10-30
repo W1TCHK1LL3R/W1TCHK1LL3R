@@ -30,7 +30,7 @@ DNI: People i CLEARLY dont like. (Phil-ish, Kai, Mitchell, Kade, Xena.), Radiost
 
 Fictkins: Vox + pilot and past (HZH), Regina Mills (OUAT), Venom (MCU), Wolfman (NBC), Catnap (PPT).
 
-Looking for my Dogday! Any Dogday fictkins/fictives, etc int! (age range required)
+Looking for my Dogday! Any Dogday fictkins/fictives, etc, int! (age range required)
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
 
