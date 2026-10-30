@@ -22,9 +22,9 @@ Sign my Strawpage & Ata!! Nothing weird though.
 
 INT: Dinosaur nerds, Staticmoth, Emilute, Vivziepop slanderers, Non-weird hazbin fans, other Vees Kins (Only The Non-weird val ones can int! + velvette.), People who don't glaze the characters.
 
-IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that arent staticmoth (staticbelle for example.)
+IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that arent staticmoth (staticbelle for example), Dogday x Catnap.
 
-DNI: People i CLEARLY dont like. (Phil-ish, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship, Spawnism, Toxic christians/Toxic atheists, Any religion forcers, Sexists, Racists, Ice and Trump supporters, Charlie kirk supporters, Flat-earthers, Highly-sensitive people. (or people who cant take jokes.), Basic criteria, If you find kys jokes funny, People who dont support satanism/spread misinformation about it, ai supporters/glazers.
+DNI: People i CLEARLY dont like. (Phil-ish, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship, Spawnism, Toxic christians/Toxic atheists, Any religion forcers, Sexists, Racists, Ice and Trump supporters, Charlie kirk supporters, Flat-earthers, Highly-sensitive people. (or people who cant take jokes.), Basic criteria, If you find kys jokes funny, People who dont support satanism/spread misinformation about it, ai supporters/glazers, People who find the poppy playtime characters attractive. (especially the children)
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
 
