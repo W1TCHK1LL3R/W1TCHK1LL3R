@@ -38,7 +38,7 @@ Non-sharing yume: Emma Swan. (OUAT)
 
 Swanqueen and Staticmoth are my otps <3
 
-.𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
+
 
 ![image alt](https://files.catbox.moe/zg73y9.png)
 
