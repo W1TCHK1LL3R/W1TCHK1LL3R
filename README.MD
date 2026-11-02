@@ -42,7 +42,7 @@ Swanqueen and Staticmoth are my otps <3
 
 ![image alt](https://files.catbox.moe/zg73y9.png)
 
-nominations: ponytown's Regina Mills by: [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) [@daggerstruckmage](https://github.com/daggerstruckmage)
+nominations: ponytown's Regina Mills by: [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) [@daggerstruckmage](https://github.com/daggerstruckmage) , ponytown's Venom by: [@piddlesjet](https://github.com/piddlesjet)
 
 
 
