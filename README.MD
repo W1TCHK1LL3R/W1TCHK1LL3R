@@ -43,7 +43,7 @@ Shadow ships DNI. (I didn't enjoy romantic partners in my past life.)
 ![image alt](https://files.catbox.moe/mwmjn9.jpg)
 
 
-nominations: ponytown's Regina Mills by: [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) [@daggerstruckmage](https://github.com/daggerstruckmage) , ponytown's Venom by: [@piddlesjet](https://github.com/piddlesjet)
+nominations: ponytown's Regina Mills by: [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) [@daggerstruckmage](https://github.com/daggerstruckmage) , ponytown's Venom by: [@piddlesjet](https://github.com/piddlesjet) ponytown's Catnap by: [@piddlesjet](https://github.com/piddlesjet)
 
 
 
