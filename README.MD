@@ -33,7 +33,7 @@ Swanqueen <3 (kinship.)
 
 Shadow ships DNI. (I didn't enjoy romantic partners in my past life.)
 
-[Info about me + DNI](https://hail-shadow.straw.page)
+[More Info about me + DNI](https://hail-shadow.straw.page)
 
 ![image alt](https://files.catbox.moe/mwmjn9.jpg)
 
