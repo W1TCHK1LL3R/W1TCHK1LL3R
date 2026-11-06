@@ -7,7 +7,7 @@ Read strawpage/carrd.
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
- Enneagram: 8w4, Mbti: I/ENTJ-T.
+ Enneagram: 8w4, Mbti: INTJ/ENTJ-T.
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔. 
 
