@@ -40,7 +40,7 @@ Swanqueen and Staticmoth are my otps <3
 
 Shadow ships DNI. (I didn't enjoy romantic partners in my past life.)
 
-(https://hail-shadow.straw.page)
+[strawpage with more info about me](https://hail-shadow.straw.page)
 
 ![image alt](https://files.catbox.moe/mwmjn9.jpg)
 
