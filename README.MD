@@ -29,7 +29,7 @@ Looking for my sourcemates! Any fictkins/fictives, etc, int! (age range required
 
 Non-sharing yume: Emma Swan. (OUAT)
 
-Swanqueen and Staticmoth are my otps <3
+Swanqueen <3 (kinship.)
 
 Shadow ships DNI. (I didn't enjoy romantic partners in my past life.)
 
