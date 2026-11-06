@@ -24,7 +24,7 @@ INT: Dinosaur nerds, Vivziepop slanderers, Non-weird hazbin fans, Source/canonma
 
 IWEC: Christians, Hellaverse fandom, People who are synpaths/fictionhearts, etc, of my kintypes, People who are heavily into politics.
 
-DNI: People i CLEARLY dont like. (Phil-ish, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship, Spawnism, Toxic christians/Toxic atheists, Any religion forcers, Sexists, Racists, Ice and Trump supporters, Charlie kirk supporters, Flat-earthers, Highly-sensitive people, (or people who cant take jokes.), If you find kys jokes funny, People who dont support satanism/spread misinformation about it, ai supporters/glazers, People who find the poppy playtime characters attractive (especially the children), Nazis.
+DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship, Spawnism, Toxic christians/Toxic atheists, Any religion forcers, Sexists, Racists, Ice and Trump supporters, Charlie kirk supporters, Flat-earthers, Highly-sensitive people, (or people who cant take jokes.), If you find kys jokes funny, People who dont support satanism/spread misinformation about it, ai supporters/glazers, People who find the poppy playtime characters attractive (especially the children), Nazis.
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
 
