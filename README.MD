@@ -21,7 +21,7 @@ Sign my Strawpage & Ata!! Nothing weird though.
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
 
-Fictkins: Vox + pilot and past (HZH), Regina Mills (OUAT), Venom (MCU), Wolfman (NBC), Catnap (PPT), Shadow (STH), Vee (DW).
+Fictkins: Vox + pilot and past (HZH), Regina Mills (OUAT), Venom (MCU), Wolfman (NBC), Catnap (PPT), Shadow (STH), Vee (DW), Macaque (LMK).
 
 Looking for my sourcemates! Any fictkins/fictives, etc, int! (age range required)
 
