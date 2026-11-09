@@ -31,7 +31,7 @@ Non-sharing yume: Emma Swan. (OUAT)
 
 Swanqueen <3 (kinship.)
 
-Shadow ships DNI. (I didn't enjoy romantic partners in my past life.)
+Shadow + Vee ships DNI.
 
 [More Info about me + DNI](https://hail-shadow.straw.page)
 
