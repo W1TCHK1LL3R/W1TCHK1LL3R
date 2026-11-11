@@ -21,9 +21,9 @@ Sign my Strawpage & Ata!! Nothing weird though.
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
 
-Fictkins: Vox + pilot and past (HZH), Regina Mills (OUAT), Venom (MCU), Wolfman (NBC), Catnap (PPT), Shadow (STH), Vee (DW), Macaque (LMK), Satan/Wrath (HB), The Devil (TCHS).
+Fictkins: Vox + pilot and past (HZH), Regina Mills (OUAT), Venom (MCU), Wolfman (NBC), Catnap (PPT), Shadow (STH), Vee (DW), Macaque (LMK), Satan/Wrath (HB).
 
-Heavy Synpath (personality): Asmodeus (HB), Agatha Harkness (MCU).
+Heavy Synpath (personality): Asmodeus (HB), Agatha Harkness (MCU), The Devil (TCHS).
 
 Looking for my sourcemates! Any fictkins/fictives, etc, int! (age range required)
 
