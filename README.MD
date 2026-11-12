@@ -35,7 +35,6 @@ Swanqueen <3 (kinship.)
 
 Shadow + Vee ships DNI.
 
-[More Info about me + DNI](https://hail-shadow.straw.page)
 
 ![image alt](https://files.catbox.moe/mwmjn9.jpg)
 
