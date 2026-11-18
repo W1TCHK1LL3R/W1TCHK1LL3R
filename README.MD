@@ -1,5 +1,5 @@
 
-VEX 𖤐. (Fictionkin and Otherkin, Atheistic Satanism. I do NOT partake in rituals or sacrifice.)
+VEX/VOX -- Vex is only allowed by close friends. 𖤐. (Fictionkin and Otherkin, Atheistic Satanism. I do NOT partake in rituals or sacrifice.)
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
